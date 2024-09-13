@@ -1,7 +1,14 @@
-##
+**Bem vindo ao meu Perfil**
 
 
-**Leonardo Pereira Azevedo** 幸福  _Um bom menino_
+**Leonardo Pereira Azevedo**   幸福   👾  _Um bom menino_
+
+_Artista_ 💫
+
 **Contato:** 00001134312015sp@al.educacao.sp.gov.br
 
-![images](https://github.com/user-attachments/assets/9cb3f720-995a-4206-81bb-2969da34156a)
+
+
+![Pivot_Wave](https://github.com/user-attachments/assets/22cb4283-9ee9-4f90-8b35-d3d25adefd13)
+
+
