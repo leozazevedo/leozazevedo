@@ -3,7 +3,7 @@
 
 **Leonardo Pereira Azevedo**   幸福  
 
-👾  _Um bom menino_
+_Um bom menino_ 👾
 
 _Artista_ 💫
 
